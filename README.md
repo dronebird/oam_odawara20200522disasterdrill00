@@ -1,0 +1,2 @@
+# oam_odawara20200522disasterdrill00
+小田原市連携訓練2020
